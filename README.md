@@ -1,2 +1,2 @@
 # SC3-Class
-uwu
+Alexandra Serrano Mendoza
